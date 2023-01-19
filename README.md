@@ -9,7 +9,7 @@ How did we do it? Well the L in Walmart was replaced by a capitalized i, which l
 ---
 
 ## 🤨 Who operates this account?
-hovac#6345 on Discord, or [hovac on YouTube](https://youtube.com/hovacc)
+hovac#7152 and stummy#0001 on Discord
 
 ---
 
